@@ -1,4 +1,4 @@
-# Phạm Thanh Tung — QC / Manual Tester Portfolio
+# Pham Thanh Tung — QC / Manual Tester Portfolio
 
 📧 tungpham1824@gmail.com · 📱 (+84) 0397301110 · 💻 [github.com/Tung1801](https://github.com/Tung1801)
 
